@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rakhadinar Jaladara
 - 👀 I’m interested in find a problem
-- 🌱 I’m currently learning solve my problem
+- 🌱 I’m currently learning how to solve my problem
 - 💞️ I’m looking to collaborate on salsa dancing
 - 📫 How to reach me : rkhdinar00@gmail.com
